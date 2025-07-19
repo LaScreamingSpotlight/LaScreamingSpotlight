@@ -1,4 +1,5 @@
-## Hi there 👋
+## ![My Art](https://github.com/LaScreamingSpotlight/My-art-wip-yippiee/raw/main/Untitled33_20250720000914.png)
+
 
 <!--
 **LaScreamingSpotlight/LaScreamingSpotlight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
