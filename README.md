@@ -1,6 +1,8 @@
 ## ![My Art](https://github.com/LaScreamingSpotlight/My-art-wip-yippiee/raw/main/Untitled33_20250720000914.png)
+<img width="1536" height="2048" alt="17582973326876143273458255268465" src="https://github.com/user-attachments/assets/297e2e83-42cc-4dfe-abb1-73df43940880" />
 
-Ssshadow Milk my beloved🥀 (WIP) ꨄ
+
+Ssshadow Milk and Pablobla my beloved 🥀
 
 <!--
 **LaScreamingSpotlight/LaScreamingSpotlight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
