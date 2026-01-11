@@ -1,3 +1,6 @@
+![Screenshot of project](./Untitled42%20(2).png)
+ITS A WIP OK CRIES
+
 ![Screenshot of something](./IMG-20260111-WA0004.jpg)
 
 ![Screenshot or brief alt text](https://raw.githubusercontent.com/LaScreamingSpotlight/LaScreamingSpotlight/0ff126c786d1ed90ae086f27b6c3c08a0d87c90c/Untitled40_20251210161528.png)
