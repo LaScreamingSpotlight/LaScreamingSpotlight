@@ -5,9 +5,6 @@ ITS A WIP OK CRIES
 
 ![Screenshot of something](./IMG-20260111-WA0004.jpg)
 
-![Screenshot or brief alt text](https://raw.githubusercontent.com/LaScreamingSpotlight/LaScreamingSpotlight/0ff126c786d1ed90ae086f27b6c3c08a0d87c90c/Untitled40_20251210161528.png)
-
-
 ## ![My Art](https://github.com/LaScreamingSpotlight/My-art-wip-yippiee/raw/main/Untitled33_20250720000914.png)
 <img width="1536" height="2048" alt="17582973326876143273458255268465" src="https://github.com/user-attachments/assets/297e2e83-42cc-4dfe-abb1-73df43940880" />
 
