@@ -1,11 +1,3 @@
-![Alt text](./Untitled40_Restored2%20(2).png)
-ꨄ Lady in Azure hehehgwheg
-
-![Screenshot of project](./Untitled42%20(2).png)
-ꨄ ITS A WIP OF MY OC OK CRIES
-
-![Screenshot of something](./IMG-20260111-WA0004.jpg)
-ꨄ Low quality drawing of my crk oc 💔
 
 ## ![My Art](https://github.com/LaScreamingSpotlight/My-art-wip-yippiee/raw/main/Untitled33_20250720000914.png)
 ꨄ Ssshadow Milk my beloved🥀
