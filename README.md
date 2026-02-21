@@ -1,3 +1,5 @@
+![Image](https://github.com/LaScreamingSpotlight/LaScreamingSpotlight/blob/main/Untitled44_20260221174524.png?raw=true)
+ꨄ Shamimi again
 
 ## ![My Art](https://github.com/LaScreamingSpotlight/My-art-wip-yippiee/raw/main/Untitled33_20250720000914.png)
 ꨄ Ssshadow Milk my beloved🥀
