@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&style=flat-square)
+
 ![Image](https://github.com/LaScreamingSpotlight/LaScreamingSpotlight/blob/main/Untitled44_20260221174524.png?raw=true)
 ꨄ Shamimi again
 
