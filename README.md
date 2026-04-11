@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&style=Lovelies-brown)
+![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&style=plastic&abbreviated=true&label=Lovelies&color=A3966A)
 
 ,, I wish i have the motivation to draw like i used to,,
 
