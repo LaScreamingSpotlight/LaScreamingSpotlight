@@ -1,13 +1,16 @@
-![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&style=flat-square)
+![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&Brown=Lovelies-square)
+
+,, I wish i have the motivation to draw like i used to
+,, Maybe I'll draw Peter Parker (can you tell that i like Peter Parker?)
 
 ![Image](https://github.com/LaScreamingSpotlight/LaScreamingSpotlight/blob/main/Untitled44_20260221174524.png?raw=true)
-ꨄ Shamimi again
+Probably my last drawing of him after I finish.
 
 ## ![My Art](https://github.com/LaScreamingSpotlight/My-art-wip-yippiee/raw/main/Untitled33_20250720000914.png)
-ꨄ Ssshadow Milk my beloved🥀
+My crusty old style.
 
 <img width="1536" height="2048" alt="17582973326876143273458255268465" src="https://github.com/user-attachments/assets/297e2e83-42cc-4dfe-abb1-73df43940880" />
-ꨄ My lovely Pablobla Bookie
+Lovely pavlova 
 
 
 <!--
