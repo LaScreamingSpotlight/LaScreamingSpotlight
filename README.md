@@ -1,7 +1,8 @@
-![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&Brown=Lovelies-square)
+![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&style=Lovelies-brown)
 
-,, I wish i have the motivation to draw like i used to
-,, Maybe I'll draw Peter Parker (can you tell that i like Peter Parker?)
+,, I wish i have the motivation to draw like i used to,,
+
+,, Maybe I'll draw Peter Parker (can you tell that i like Peter Parker?),,
 
 ![Image](https://github.com/LaScreamingSpotlight/LaScreamingSpotlight/blob/main/Untitled44_20260221174524.png?raw=true)
 Probably my last drawing of him after I finish.
