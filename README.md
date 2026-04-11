@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=LaScreamingSpotlight&style=plastic&abbreviated=true&label=Lovelies&color=A3966A)
+
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ppvazwuplvpc7yolpghm7m3rkq&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ppvazwuplvpc7yolpghm7m3rkq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=true&mode=light&bar_color=000000&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ppvazwuplvpc7yolpghm7m3rkq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=true&mode=dark&bar_color=000000&bar_color_cover=false">
   </a>
 </p>
 
